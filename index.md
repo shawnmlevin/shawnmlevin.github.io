@@ -1,27 +1,19 @@
 ## Casey
 
 #### Jazz
-[Jazz 1](https://www.youtube.com/watch?v=NGYRrmHAePo&feature=youtu.be) | 
 [Jazz 2](https://www.youtube.com/watch?v=RUau6VWL-fY&feature=youtu.be)
 
 #### Musical Theater
 [Musical Theater Warm Up](https://www.youtube.com/watch?v=UhC0o9Qr0Nw&feature=youtu.be)
 
 #### Tap
-[Tap 1](https://www.youtube.com/watch?v=Rg9P9zHdevs&feature=youtu.be) | 
-[Tap 2](https://www.youtube.com/watch?v=99gCo7VCReI&feature=youtu.be) | 
-[Tap 3](https://www.youtube.com/watch?v=Gr9ENcoe_80&feature=youtu.be) | 
-[Tap 4](https://www.youtube.com/watch?v=cTtJwS_mEEs)
+[Tap 1](https://www.youtube.com/watch?v=Rg9P9zHdevs&feature=youtu.be) 
 
 #### Ballet
-[Ballet 1](https://www.youtube.com/watch?v=8uprAqm9kQQ&feature=youtu.be) | 
-[Ballet 2](https://www.youtube.com/watch?v=rY4HUBo4r84&feature=youtu.be) | 
-[Ballet 3](https://www.youtube.com/watch?v=88ppPSssJIg&feature=youtu.be)
+[Ballet 2](https://www.youtube.com/watch?v=rY4HUBo4r84&feature=youtu.be)
 
 #### Hip Hop
-[Hip Hop 1](https://youtu.be/E4nC1epKR2g) | 
-[Hip Hop 2](https://youtu.be/CBgHgbd8NpQ) | 
-[Hip Hop 3](https://youtu.be/QHFDnutZWaU)
+[Hip Hop 1](https://youtu.be/4em_exVvwuo)
 
 #### Gym
 [Round Off](https://www.youtube.com/watch?v=CEWcIoH6rVo&feature=youtu.be) | 
