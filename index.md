@@ -1,4 +1,4 @@
-## CASEY
+## Casey
 
 #### Jazz
 [Jazz 1](https://www.youtube.com/watch?v=NGYRrmHAePo&feature=youtu.be) | 
@@ -19,14 +19,15 @@
 [Ballet 3](https://www.youtube.com/watch?v=88ppPSssJIg&feature=youtu.be)
 
 #### Hip Hop
-[Hip Hop 2]
-[Hip Hop 3]
+[Hip Hop 1](https://youtu.be/E4nC1epKR2g) | 
+[Hip Hop 2](https://youtu.be/CBgHgbd8NpQ) | 
+[Hip Hop 3](https://youtu.be/QHFDnutZWaU)
 
 #### Gym
 [Round Off](https://www.youtube.com/watch?v=CEWcIoH6rVo&feature=youtu.be) | 
 [Backroll](https://www.youtube.com/watch?v=HhiyVA7aXSI&feature=youtu.be)
 
-## JULIET
+## Jules
 
 #### Triple Combo
 [Tap](https://youtu.be/8fp2qCNjTPs) | 
