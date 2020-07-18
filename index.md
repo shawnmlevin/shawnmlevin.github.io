@@ -13,7 +13,7 @@
 [Ballet 2](https://www.youtube.com/watch?v=rY4HUBo4r84&feature=youtu.be)
 
 #### Hip Hop
-[Hip Hop 1](https://youtu.be/4em_exVvwuo)
+[Hip Hop 1](https://youtu.be/4DI05hNxX2c)
 
 #### Gym
 [Round Off](https://www.youtube.com/watch?v=CEWcIoH6rVo&feature=youtu.be) | 
