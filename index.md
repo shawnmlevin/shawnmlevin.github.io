@@ -6,7 +6,7 @@
 [Jazz 2](https://www.youtube.com/watch?v=RUau6VWL-fY&feature=youtu.be)
 
 #### Musical Theater
-[Musical Theater Warm Up](https://www.youtube.com/watch?v=UhC0o9Qr0Nw&feature=youtu.be)
+[Musical Theater](https://youtu.be/bjSNDNx94v4)
 
 #### Tap
 [Tap 1](https://www.youtube.com/watch?v=Rg9P9zHdevs&feature=youtu.be) 
