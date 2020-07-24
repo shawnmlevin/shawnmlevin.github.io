@@ -29,8 +29,7 @@
 [Jazz](https://youtu.be/bMXSUvtXMj4)
 
 #### Hip Hop
-[Hip Hop 1](https://www.youtube.com/watch?v=GPDZ4SQ4xyo&feature=youtu.be) | 
-[Hip Hop 2](https://www.youtube.com/watch?v=nGNjNi9DwYk&feature=youtu.be)
+[Hip Hop](https://youtu.be/p7cNLBB7dhM)
 
 #### Production
 [Build a Snowman](https://www.youtube.com/watch?v=hxbizu9J_P0&feature=youtu.be) | 
