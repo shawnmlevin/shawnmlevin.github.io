@@ -23,17 +23,16 @@
 
 ## Jules
 
+#### Minis
+[Spoonful](https://www.youtube.com/watch?v=tqrPwaTUIyA)
+
 #### Triple Combo
 [Tap](https://youtu.be/8fp2qCNjTPs) | 
 [Ballet](https://youtu.be/NJQfq6gauAY) |
 [Jazz](https://youtu.be/bMXSUvtXMj4)
 
-#### Hip Hop
-[Hip Hop](https://youtu.be/p7cNLBB7dhM)
+#### [Hip Hop](https://youtu.be/p7cNLBB7dhM)
 
 #### Production
 [Build a Snowman](https://www.youtube.com/watch?v=hxbizu9J_P0&feature=youtu.be) | 
 [Olaf](https://www.youtube.com/watch?v=O8ajrSeXBEY&feature=youtu.be)
-
-#### Minis
-[Spoonful](https://www.youtube.com/watch?v=tqrPwaTUIyA)
