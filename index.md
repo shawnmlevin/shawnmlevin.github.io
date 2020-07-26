@@ -25,11 +25,12 @@
 
 #### Minis
 [Spoonful](https://www.youtube.com/watch?v=tqrPwaTUIyA)
+[Full Mary Poppins](https://youtu.be/6tx5FudDBE8)
 
 #### Triple Combo
-[Tap](https://youtu.be/8fp2qCNjTPs) | 
-[Ballet](https://youtu.be/NJQfq6gauAY) |
-[Jazz](https://youtu.be/bMXSUvtXMj4)
+[Tap](https://youtu.be/nTRomSkuP8o) | 
+[Ballet](https://youtu.be/jHBnkbtkdDc) |
+[Jazz](https://youtu.be/8YjMZR547d4)
 
 
 #### [Hip Hop](https://youtu.be/p7cNLBB7dhM)
