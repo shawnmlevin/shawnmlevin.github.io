@@ -9,15 +9,17 @@
 [Musical Theater](https://youtu.be/bjSNDNx94v4)
 
 #### Tap
+[NEW! Studio](https://youtu.be/ZNyT8vDOxHw) | 
+[NEW! Full Dance](https://youtu.be/BMYj1CXcrdc) | 
 [Tap 1](https://www.youtube.com/watch?v=Rg9P9zHdevs&feature=youtu.be) 
 
 #### Ballet
 [Ballet 2](https://www.youtube.com/watch?v=rY4HUBo4r84&feature=youtu.be)
 
 #### Hip Hop
-[NEW Hip Hop in Studio](https://youtu.be/yfgPfrCYkBI) | 
-[NEW Whole Dance](https://youtu.be/EJFMFSHOGN8) | 
-[NEW Step by Step](https://youtu.be/5ZN3NZJoIZQ)
+[NEW! Studio](https://youtu.be/yfgPfrCYkBI) | 
+[NEW! Full Dance](https://youtu.be/EJFMFSHOGN8) | 
+[NEW! Step by Step](https://youtu.be/5ZN3NZJoIZQ)
 
 [Hip Hop 1](https://youtu.be/4DI05hNxX2c)
 
