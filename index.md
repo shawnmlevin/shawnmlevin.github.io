@@ -15,10 +15,11 @@
 [Ballet 2](https://www.youtube.com/watch?v=rY4HUBo4r84&feature=youtu.be)
 
 #### Hip Hop
-[Hip Hop 1](https://youtu.be/4DI05hNxX2c)
 [NEW Hip Hop in Studio](https://youtu.be/yfgPfrCYkBI) | 
 [NEW Whole Dance](https://youtu.be/EJFMFSHOGN8) | 
 [NEW Step by Step](https://youtu.be/5ZN3NZJoIZQ)
+
+[Hip Hop 1](https://youtu.be/4DI05hNxX2c)
 
 #### Gym
 [Round Off](https://www.youtube.com/watch?v=CEWcIoH6rVo&feature=youtu.be) | 
