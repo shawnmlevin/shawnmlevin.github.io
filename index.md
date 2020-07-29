@@ -4,6 +4,7 @@
 
 #### Jazz
 [Jazz 2](https://www.youtube.com/watch?v=RUau6VWL-fY&feature=youtu.be)
+[NEW! Jazz Studio](https://youtu.be/6O_C1pYGKLQ)
 
 #### Musical Theater
 [Musical Theater](https://youtu.be/bjSNDNx94v4)
@@ -15,6 +16,7 @@
 
 #### Ballet
 [Ballet 2](https://www.youtube.com/watch?v=rY4HUBo4r84&feature=youtu.be)
+[NEW! Balley Studio](https://youtu.be/6l2_bTufSOw)
 
 #### Hip Hop
 [NEW! Studio](https://youtu.be/yfgPfrCYkBI) | 
