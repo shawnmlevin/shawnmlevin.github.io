@@ -11,7 +11,7 @@
 ## Production
 
 #### Miss Mandi
-[Broadway Run Through](https://youtu.be/oh1po_Zv-X8)
+[Broadway Run Through](https://youtu.be/oh1po_Zv-X8) | 
 [Broadway Breakdown](https://youtu.be/bXEUKP16ZPs)
 
 #### Miss Heather
